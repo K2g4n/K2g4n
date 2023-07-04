@@ -1,0 +1,2 @@
+dışarı çık
+get outside
